@@ -1,1 +1,1 @@
-Jesus loves you.
+John 17:3
